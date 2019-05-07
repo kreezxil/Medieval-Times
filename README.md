@@ -1,1 +1,2 @@
 # Medieval-Times
+ALL RIGHTS RESERVED
